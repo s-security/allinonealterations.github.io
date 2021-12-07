@@ -12,7 +12,7 @@ Our Address: <br>
 <br>
 Our Hours of Operation: <br>
 <br>
-Monday to Thursday: 10am – 5pm <br>
+Monday to Thursday: 11am – 5pm <br>
 Friday: 12PM – 5PM <br>
 Saturday: Closed <br>
 Sunday: Closed <br>
